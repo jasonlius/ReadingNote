@@ -40,7 +40,8 @@
 18,回想起来，当他将那些自己懂得的知识十分慷慨地传授给别人时，他变得更加聪明。在这个世界上有许多力量比我们所拥有的能力更强，你也许可以凭自己的努力获得成功，但是如果有了这种力量的帮助，你就更容易成功或者取得更伟大的成功。  
   
 ## 电影《功夫熊猫》，好句！
-![](https://www.younghappyminds.com/single-post/2016/07/28/why-we-should-listen-to-master-oogway)
+![](https://static.wixstatic.com/media/e4e2af_131477f3efbe46328068c1c9853edbed~mv2.jpg/v1/fill/w_768,h_576,al_c,lg_1,q_90/e4e2af_131477f3efbe46328068c1c9853edbed~mv2.webp)  
+  
 你患得患失，太在意从前，又担心将来。 
   
 昨天是段历史，明天是个谜团，今天是天赐的礼物，像珍惜礼物一样珍惜今天。  
